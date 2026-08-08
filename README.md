@@ -34,7 +34,7 @@
        I always late resp when I'm afking !
        I have a partner
 
-       My sexuality: lesbian , bisexual 
+       My sexuality: lesbian , bisexual , fictosexual
        I have a fear of cockroaches and spiders , you could say all of the insects
         ,,, scared of the dark 😿
     Do not copy my ponies 🚫 
@@ -117,6 +117,17 @@
                                ↑↑↑↑↑↑↑
           
           THATS AlL !  I like all of this songs in my option 
+
+          I HeavyKin Twotime
+          Hvykin means : you want to be that one character
+           
+           ..𓂃 ࣪ ִֶָ🪽་༘࿐ ۶ৎ - ────୨ৎ────..𓂃 ࣪ ִֶָ🪽་༘࿐ ۶ৎ - 
+           I
+           
+           also Hvykin mafioso I liked the fanarts people make them
+           
+
+           
          
 
 
