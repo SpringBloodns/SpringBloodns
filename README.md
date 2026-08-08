@@ -75,6 +75,49 @@
         PLSS C*H enc me 😿😿
 
         I have ADHD  😔
+        ꒷꒦•.....┈┈๑⋅⋯୨˚୧⋯⋅๑┈┈......꒦꒷..𓂃 ࣪ ִֶָ🪽་༘࿐ ۶ৎ - ꒷꒦•.....┈┈๑⋅⋯୨˚୧⋯⋅๑┈┈......꒦꒷
+       
+        usually stay quiet when I'm out of place when being ignored
+         I sometimes put " . " when I'm sad , depressed , annoyed
+
+         I usually hate people bullying my friends so don't try it or else-
+          I can be your enemy once you bully them
+
+         ..𓂃 ࣪ ִֶָ🪽་༘࿐ ۶ৎ - ────୨ৎ────
+
+         Recommended to not cover me unless friends because I can be mean 😅
+          I usually listen to vocaloid songs or nostalgia songs !
+
+          my fav songs : 
+
+          another cup
+          Binomi
+          love
+          tomboy
+          cubibisim/cubisim
+          kyu-karin
+          lily
+          sippycup
+          new friends
+          Mrs.Potato Head
+          bitter choco decoration 
+          double suicide
+          Rabbit Hole
+          mind brand
+          Christmas kids
+          fame is a gun
+          miss miss
+          from the start
+          wet
+          perfect pair by R.L Beats
+          futari no kimochi no honti no hitmitsu
+          numbers
+          mind brand
+          
+                               ↑↑↑↑↑↑↑
+          
+          THATS AlL !  I like all of this songs in my option 
+         
 
 
 
