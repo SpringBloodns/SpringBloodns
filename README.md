@@ -43,6 +43,7 @@
     જ⁀➴ C*H me anytime on ponytown
     you can usually see me on spawn area , bakery area , or at the beach 
     I Love my Family/friends
+    
     Special ones !
     @Elliotwitness
     @Secretaryykim
@@ -50,6 +51,7 @@
     @ZukkosHonor
     @N0V4-B1
     @lovingl3tters
+    @j134nn9090
 
 
     ꒷꒦•.....┈┈๑⋅⋯୨˚୧⋯⋅๑┈┈......꒦꒷..𓂃 ࣪ ִֶָ🪽་༘࿐ ۶ৎ - 
@@ -60,6 +62,23 @@
      I can stop anytime .
      ..𓂃 ࣪ ִֶָ🪽་༘࿐ ۶ৎ - 
      I'm a minor .
+
+     ㅤྀི◟ ͜ ◞˚̣̣̣ ྀི︶𓏴︶ㅤྀི◟ ͜ ◞˚̣̣̣ ྀི︶𓏴︶ㅤྀི◟ ͜ ◞˚̣̣̣ ྀི︶𓏴︶ㅤྀི◟ ͜ ◞˚̣̣̣ ྀི︶𓏴︶ㅤྀི◟ ͜ ◞˚̣̣̣ ྀི︶𓏴︶ㅤྀི◟ ͜ ◞˚̣̣̣ ྀི︶𓏴︶
+
+      I have a TikTok account but I won't be mentioning it because it's useless and I abandoned 
+       it 😔
+      if you really wanna know here it's user " 1x1x1x1maintwotime23 " don't post here munch
+       alt " K1_.Citimatic " mainly slow posting here
+        always online on. " 1x1x1x1maintwotime23 " 
+        chat me anytime 
+
+        PLSS C*H enc me 😿😿
+
+        I have ADHD  😔
+
+
+
+     
 
      ꒷꒦•.....┈┈๑⋅⋯୨˚୧⋯⋅๑┈┈......꒦꒷..𓂃 ࣪ ִֶָ🪽་༘࿐ ۶ৎ - ꒷꒦•.....┈┈๑⋅⋯୨˚୧⋯⋅๑┈┈......꒦꒷
                        THATS ALL ABOUT ME THANK YOU FOR READING
