@@ -52,6 +52,7 @@
     @N0V4-B1
     @lovingl3tters
     @j134nn9090
+    @twottimey
 
 
     ꒷꒦•.....┈┈๑⋅⋯୨˚୧⋯⋅๑┈┈......꒦꒷..𓂃 ࣪ ִֶָ🪽་༘࿐ ۶ৎ - 
@@ -119,7 +120,7 @@
           THATS AlL !  I like all of this songs in my option 
 
           I HeavyKin Twotime
-          Hvykin means : you want to be that one character
+         
            
            ..𓂃 ࣪ ִֶָ🪽་༘࿐ ۶ৎ - ────୨ৎ────..𓂃 ࣪ ִֶָ🪽་༘࿐ ۶ৎ - 
            I
